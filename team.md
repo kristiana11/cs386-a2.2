@@ -1,4 +1,5 @@
 # Kristiana K 
+My name is Kristiana. My favorite color is pink. I love to snowboard and hang with friends. 
 
 ## Kendall C
 
